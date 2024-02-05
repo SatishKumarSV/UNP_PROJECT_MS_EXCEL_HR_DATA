@@ -13,3 +13,5 @@ Key Highlights:
 
 
 CANVA LINK :- https://www.canva.com/design/DAF71PpoB_g/XWIDueVDR87EWWRg5fPG2Q/edit?utm_content=DAF71PpoB_g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+PDF LINK:- https://drive.google.com/file/d/1PAcMuLAB8Sdh-YAIkT31M9MV1CuantmS/view?usp=drivesdk
